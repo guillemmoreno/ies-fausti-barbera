@@ -1,6 +1,6 @@
 # **Itinerario Personal Para La Empleabilidad**
 ## *Unidad 1*
-Esta asignatura sirve para prepararse y saber las condiciones de un futuro empleo
+This subject serves to prepare and know the conditions of a future job
 
 <ins>Guillem Moreno<ins>
 2 SMX
